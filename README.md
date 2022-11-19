@@ -7,6 +7,9 @@ Come and join!
 Sincerely Albert Hajek
 
 Twitter:
+
 -mine: https://twitter.com/albert_hajek
+
 -every log-update: UNDER CONSTRUCTION - COMING SOON!
+
 -official:
